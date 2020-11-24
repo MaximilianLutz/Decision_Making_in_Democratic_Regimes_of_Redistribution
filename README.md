@@ -1,0 +1,2 @@
+# Decision_Making_in_Democratic_Regimes_of_Redistribution
+Additional Material to the Dissertation by Maximilian Lutz
